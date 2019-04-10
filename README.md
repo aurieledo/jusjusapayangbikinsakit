@@ -1,0 +1,2 @@
+# jusjusapayangbikinsakit
+justafriend:(
